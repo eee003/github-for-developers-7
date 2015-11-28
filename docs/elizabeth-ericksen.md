@@ -2,4 +2,4 @@
 - From: Cedar Rapids Iowa
 - Favorite Food: Raspberries
 - Favorite Hobby: Learning New Things
-- Favorite Color: Purple
+- Favorite Color: Green
